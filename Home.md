@@ -3,6 +3,10 @@
 
 _Cambridge and the Monetary Theory of Production_, Palgrave Macmillan 1990
 
+## Chapters
+
+"Bonamy Price (1807-1888)" _The Palgrave Companion to Oxford Economics_ Ed Robert A Cord, Palgrave Macmillan (forthcoming)
+
 ## Articles
 
 “Hawtrey, Ralph George (1879-1975).” _The New Palgrave Dictionary of Economics_. Second Edition. Eds Steven N Durlauf & Lawrence E Blume, Palgrave Macmillan 2008.
