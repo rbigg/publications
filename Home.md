@@ -1,11 +1,11 @@
 # Publications by RJ Bigg
 ## Books
 
-_Cambridge and the Monetary Theory of Production_, Palgrave Macmillan 1990
+_Cambridge and the Monetary Theory of Production_, Palgrave Macmillan 1990.
 
 ## Chapters
 
-"Bonamy Price (1807-1888)" _The Palgrave Companion to Oxford Economics_ Ed Robert A Cord, Palgrave Macmillan (forthcoming)
+"Bonamy Price (1807-1888)" _The Palgrave Companion to Oxford Economics_ Ed Robert A Cord, Palgrave Macmillan 2021.
 
 ## Articles
 
